@@ -1,0 +1,1 @@
+# FİİL ÇEKİMLEME
